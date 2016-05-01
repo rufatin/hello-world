@@ -1,4 +1,2 @@
-# hello-world
-Hello Repository
-WEGRGRHRHERHEWCVFEVEVEVEVVEW
+VVEW
 Rufat
